@@ -1,4 +1,4 @@
-# 
+# vip nft trading bot | arbitrage-opportunities + stop-loss is the best nft trading bot, featuring arbitrage-opportunities and stop-loss. Fast, smart, and optimized for NFT trading
 
 
 
